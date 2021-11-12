@@ -7,4 +7,4 @@
 - 英文名: Full Armor Unicorn Gundam
 - 作品系列：机动战士高达UC
 
-![img](https://t00img.yangkeduo.com/goods/images/2020-03-06/440002f0-ffa7-494b-9e01-00920512ffaf.jpg)
+![img](https://uploader.supersky07.cn/images/2021/11/12/aa709305a7cfde0f67394e2f7ea52f88.jpg)
